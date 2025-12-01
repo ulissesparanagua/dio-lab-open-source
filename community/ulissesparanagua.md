@@ -1,7 +1,7 @@
 
 # DIO | Ulisses Paranaguá
 
-**Técnico de TI (Suporte/Asistência em Notebook/Placa mãe/Impressoras).
+**Técnico de TI (Suporte/Assistência em Notebook/Placa mãe/Impressoras).
 
 **Formado em Gestão Financeira pela UNIJORGE.
 
